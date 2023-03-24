@@ -10,3 +10,4 @@ Crysencio Summerville (21), Brennan Johnson (21), Degnand Gnoto (19) are young h
 Although Gabriel Jesus is underperforming his xG his general play does seem to improve the goals and assists numbers of the attackers arround him.
 
 ![Slide3](https://user-images.githubusercontent.com/34937584/227429188-bda265c0-6682-4d0b-af1f-79cc237d9b29.jpg)
+Main takeaways: Jadon Sancho(22), Kaoru Mitoma(25), Crysencio Summerville (21), Martinelli (21), Phil Foden (22) have been more efficient in goalscoring with their shots taken than Harry Kane (29) thus far this season.
